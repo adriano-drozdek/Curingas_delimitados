@@ -1,0 +1,1 @@
+# Curingas_delimitados
